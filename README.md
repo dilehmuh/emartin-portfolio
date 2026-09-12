@@ -1,5 +1,7 @@
 # Sales Analyst, Marketing Strategist, & Data Scientist
 
+* * *
+
 #### Technical Skills: Data Analysis, Microsoft Office, Financial Reporting, Budgeting & Auditing, Event Planning, Marketing Strategy, Canva, Python Programming.
 
 ### Education
